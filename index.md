@@ -1,5 +1,7 @@
 ## 北辩8章程
 
+[final logo (16 5 21)](https://user-images.githubusercontent.com/111105450/184289351-1b81f3e9-e987-4ad6-918a-37b4ff95dfb3.png)
+
 请下载以下pdf以浏览完整的章程
 
 
